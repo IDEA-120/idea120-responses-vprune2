@@ -1,0 +1,1 @@
+I want to try and create a background video of me fighting off a clone of me. Maybe my clone will suddenly come into my room/space and then another clone thats just chilling in the background has to fight them off. I might add some aspects of video game graphics.
